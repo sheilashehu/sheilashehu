@@ -1,12 +1,4 @@
-## Hi there 👋
 
-### 👩‍💻 My name is Sheila. I have studied for Telecommunications Engineering and now I am working as a Developer.
-
-### 😄 I am from Albania and I am currently living near Miami. I love animals 🐶, pizza 🍕 and 📙reading books. 
-
-### 🌱 I'm currently expanding my knowledge about Blockchain Technology. 
-
-### ⚡ You can reach me on [Linkedin](https://www.linkedin.com/in/sheila-shehu/) and 📧 sheilashehu111@gmail.com. 
 
 
 
